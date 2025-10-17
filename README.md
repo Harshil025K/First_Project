@@ -1,2 +1,2 @@
 # First_Project
-Hey! Thus is gonna be interesting.guu
+Hey! Thus is gonna be interesting.
